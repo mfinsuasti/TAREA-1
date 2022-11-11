@@ -384,6 +384,8 @@ Quedaria:
 
 ## 4. VIDEO
 
+https://www.youtube.com/watch?v=aDgE8f5A5cc
+
 ## 5. CONCLUSIONES
 *Se pudo lograr el correcto entendimiento del contenido del libro correspondiente al cápitulo 1
 y cápitulo 2, a su vez afianzando la relacion que estos tienen para su posterior estudio en el 
